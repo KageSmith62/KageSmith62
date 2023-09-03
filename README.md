@@ -9,4 +9,4 @@ KageSmith62/KageSmith62 is a ✨ special ✨ repository because its `README.md` 
 You can click the Preview link to take a look at your changes.
 ---> please subscribe to savagebroteam
 please go shop at 67f710.myshopify.com as KageConstruction shop on shopify
-to reach me call m at 478-783-2914
+to reach me call me at 478-783-2914
